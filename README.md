@@ -7,73 +7,74 @@
 
 
 ### 实时采集记录
-  最近采集时间:2021-02-25 20:50:01
-#### 1.台风少年行链接: [https://pan.baidu.com/s/1eUrT8Pnec_-Iyk6VF1N_IQ](https://pan.baidu.com/s/1eUrT8Pnec_-Iyk6VF1N_IQ)   提取码: 727y
-#### 2.婆婆和妈妈2（更至02.25）链接: [https://pan.baidu.com/s/1chJEcTpipxsTx7z-GdBi2g](https://pan.baidu.com/s/1chJEcTpipxsTx7z-GdBi2g)   提取码: 9sw4
-#### 3.我的时代，你的时代（更至26）链接: [https://pan.baidu.com/s/1GxpXBgObghCLFh5iYuuLEw](https://pan.baidu.com/s/1GxpXBgObghCLFh5iYuuLEw)   提取码: 3tdj
-#### 4.青春有你3（更至02.25）链接: [https://pan.baidu.com/s/1oTXOy38VtICwIAezdd80eA](https://pan.baidu.com/s/1oTXOy38VtICwIAezdd80eA)   提取码: urkf
-#### 5.乡村爱情13（更至16）链接: [https://pan.baidu.com/s/1dAVBt2Tq2A3kTCMAneUM-g](https://pan.baidu.com/s/1dAVBt2Tq2A3kTCMAneUM-g)   提取码: iw8v
-#### 6.玲珑（更至40）链接：[https://pan.baidu.com/s/14n2fn3yL5WRnXxcl6qAjNQ](https://pan.baidu.com/s/14n2fn3yL5WRnXxcl6qAjNQ)  提取码：8008
-#### 7.山河令（更至07）链接: [https://pan.baidu.com/s/1WJwlF0Lv5Z2k_ToJ-QH7rw](https://pan.baidu.com/s/1WJwlF0Lv5Z2k_ToJ-QH7rw)   提取码: fc2u
-#### 8.Re:从零开始的异世界生活2（更至21）链接：[https://pan.baidu.com/s/1-eLF7hlurC-QiBL1Du4lQA](https://pan.baidu.com/s/1-eLF7hlurC-QiBL1Du4lQA)  提取码：8008
-#### 9.僵尸大时代链接: [https://pan.baidu.com/s/1zdpFOhSNezX4Q6m2uVwwHg](https://pan.baidu.com/s/1zdpFOhSNezX4Q6m2uVwwHg)   提取码: jpe4
-#### 10.通天书院链接：[https://pan.baidu.com/s/1RhUbcjeVIJhR-MjMMYIe7Q](https://pan.baidu.com/s/1RhUbcjeVIJhR-MjMMYIe7Q)  提取码：pe0q
-#### 11.奇葩说2021（更至02.25）链接：[https://pan.baidu.com/s/1pYywM5HbeO7faLgd_TBQ6w](https://pan.baidu.com/s/1pYywM5HbeO7faLgd_TBQ6w)  提取码：8008
-#### 12.我是大神仙（更至17）链接: [https://pan.baidu.com/s/1HBca-yKCom-AhmTMygPvtQ](https://pan.baidu.com/s/1HBca-yKCom-AhmTMygPvtQ)   提取码: 6cbs
-#### 13.秦时明月之沧海横流（更至24）链接: [https://pan.baidu.com/s/158X3c31Q6ZxBHmYCTLZLTQ](https://pan.baidu.com/s/158X3c31Q6ZxBHmYCTLZLTQ)   提取码: ey5n
-#### 14.雪鹰领主（更至40）链接: [https://pan.baidu.com/s/14W36tqogaapQ3qqEs7j_0w](https://pan.baidu.com/s/14W36tqogaapQ3qqEs7j_0w)   提取码: yhxj
-#### 15.明星大侦探2020+名侦探俱乐部（更至02.25）链接: [https://pan.baidu.com/s/1Ml-kfA2Wwz4Dg-T8k8qetw](https://pan.baidu.com/s/1Ml-kfA2Wwz4Dg-T8k8qetw)   提取码: 5s65
-#### 16.人间指南（更至02.25）链接: [https://pan.baidu.com/s/1kO0zBD9nxyc1GszJ6dRcZA](https://pan.baidu.com/s/1kO0zBD9nxyc1GszJ6dRcZA)   提取码: ic49
-#### 17.屌丝男士1-4链接: [https://pan.baidu.com/s/1nzPTlwde2HWL1gdyt_3-Vg](https://pan.baidu.com/s/1nzPTlwde2HWL1gdyt_3-Vg)   提取码: vm6w
-#### 18.恋爱吧食梦君在线2在线链接：[http://zeilou3.cn/play/tv/QbZwbX7lSGXlN3](http://zeilou3.cn/play/tv/QbZwbX7lSGXlN3)
-#### 19.恋爱吧食梦君1在线链接: [http://zeilou3.cn/play/tv/PrZqbH7lSGXlOH](http://zeilou3.cn/play/tv/PrZqbH7lSGXlOH)
-#### 20.脱口秀大会2020在线链接:[http://zeilou3.cn/play/va/ZMAoaXNz7JY5DD](http://zeilou3.cn/play/va/ZMAoaXNz7JY5DD)
-#### 21.怪物猎人链接：[https://pan.baidu.com/s/1_UK6FIp7rn-l1CN3sztPMw](https://pan.baidu.com/s/1_UK6FIp7rn-l1CN3sztPMw)  提取码：8008
-#### 22.斗破苍穹动漫第3季在线链接:[http://zeilou3.cn/play/ct/QEDqap7lMYC2Dj](http://zeilou3.cn/play/ct/QEDqap7lMYC2Dj)
-#### 23.伦敦陷落在线链接:[http://zeilou3.cn/play/m/f6bpaRH2RHX2Tx](http://zeilou3.cn/play/m/f6bpaRH2RHX2Tx)
-#### 24.大叔之爱电视剧2018在线链接:[http://zeilou3.cn/play/n/72961](http://zeilou3.cn/play/n/72961)
-#### 25.宠女青春白皮书在线链接: [http://zeilou3.cn/play/n/86162](http://zeilou3.cn/play/n/86162)
-#### 26.修罗新娘链接: [https://pan.baidu.com/s/1OsMwMYiJ3Cmiv-xqSNllSQ](https://pan.baidu.com/s/1OsMwMYiJ3Cmiv-xqSNllSQ)   提取码: hejx
-#### 27.择日而亡在线链接: [http://zeilou3.cn/play/m/fqbkYhH6QXj8TB](http://zeilou3.cn/play/m/fqbkYhH6QXj8TB)
-#### 28.发财日记链接：[https://pan.baidu.com/s/1GxDZ4KJ7u3u_IYt6HVWQZQ](https://pan.baidu.com/s/1GxDZ4KJ7u3u_IYt6HVWQZQ)  提取码：8008
-#### 29.变焦在线链接：[http://zeilou3.cn/play/n/76768](http://zeilou3.cn/play/n/76768)
-#### 30.当天真遇见爱情（更至28）链接: [https://pan.baidu.com/s/1qgmzSq3rQ0SACYsv_K5jdw](https://pan.baidu.com/s/1qgmzSq3rQ0SACYsv_K5jdw)   提取码: wgtr
-#### 31.这个世界不看脸链接: [https://pan.baidu.com/s/1Rw64xYv0bct13p96KXPHdw](https://pan.baidu.com/s/1Rw64xYv0bct13p96KXPHdw)   提取码: k95k
-#### 32.约定2021（更至36）链接: [https://pan.baidu.com/s/1YogpzfAW3nA2QVP7hXsrzg](https://pan.baidu.com/s/1YogpzfAW3nA2QVP7hXsrzg)   提取码: fii1
-#### 33.了不起的女孩链接: [https://pan.baidu.com/s/1pvckcoaPpxDecrcUbD2m5Q](https://pan.baidu.com/s/1pvckcoaPpxDecrcUbD2m5Q)   提取码: m8mx
-#### 34.闪光少女2019电视剧在线链接：[http://zeilou3.cn/play/tv/QbNoaX7lSz4qMH](http://zeilou3.cn/play/tv/QbNoaX7lSz4qMH)
-#### 35.闪光少女2017电影在线链接：[http://zeilou3.cn/play/m/hqLkYxH4QnT1SB](http://zeilou3.cn/play/m/hqLkYxH4QnT1SB)
-#### 36.良医美剧第4季（更至10）链接: [https://pan.baidu.com/s/1D1pXEVQqkdoTuANsvK6OcA](https://pan.baidu.com/s/1D1pXEVQqkdoTuANsvK6OcA)   提取码: ujin
-#### 37.前辈，请不要涂那支口红（更至10）链接: [https://pan.baidu.com/s/1YwJXRJXZaKH-hyEUKP2Vow](https://pan.baidu.com/s/1YwJXRJXZaKH-hyEUKP2Vow)   提取码: q498
-#### 38.刺客伍六七之玄武国篇（更至05）链接: [https://pan.baidu.com/s/1aRxqDOb38BvTg24P1hgEwA](https://pan.baidu.com/s/1aRxqDOb38BvTg24P1hgEwA)   提取码: cxkx
-#### 39.我是余欢水在线链接: [http://zeilou3.cn/play/tv/RbRuaH7lSzTpM3](http://zeilou3.cn/play/tv/RbRuaH7lSzTpM3)
-#### 40.狼殿下在线链接: [http://zeilou3.cn/play/tv/PLNtaH7lSWLnMn](http://zeilou3.cn/play/tv/PLNtaH7lSWLnMn)
-#### 41.青簪锁三千在线链接: [http://zeilou3.cn/play/m/gafkZhH6QXH7Tx](http://zeilou3.cn/play/m/gafkZhH6QXH7Tx)
-#### 42.沙蟒围城在线链接: [http://www.zeilou3.cn/play/m/gKboZxH6QXb0Sh](http://www.zeilou3.cn/play/m/gKboZxH6QXb0Sh)
-#### 43.我曾记得那男孩（更至10）链接: [https://pan.baidu.com/s/1eefOuD1BMwN8_Le1ZUA6xA](https://pan.baidu.com/s/1eefOuD1BMwN8_Le1ZUA6xA)   提取码: fw7w
-#### 44.奶爸当家链接：[https://pan.baidu.com/s/130hJEnBqfJdds-YR5ITC4g](https://pan.baidu.com/s/130hJEnBqfJdds-YR5ITC4g)  提取码：8008
-#### 45.谎言大师链接: [https://pan.baidu.com/s/1YtWlyefQPID1gxyfh8dNKA](https://pan.baidu.com/s/1YtWlyefQPID1gxyfh8dNKA)   提取码: qhrv
-#### 46.你好，李焕英链接：[https://pan.baidu.com/s/1c-jbgxsw-fiGWTM1M4UtMA](https://pan.baidu.com/s/1c-jbgxsw-fiGWTM1M4UtMA)  提取码：8008
-#### 47.上阳赋 （更至68）链接：[https://pan.baidu.com/s/1LHrQ18BPlQjSx6Lt_PTqbA](https://pan.baidu.com/s/1LHrQ18BPlQjSx6Lt_PTqbA)  提取码：8008
-#### 48.风平浪静2020链接: [https://pan.baidu.com/s/1pVhfJ-sMj9fuRXgMjH0gxw](https://pan.baidu.com/s/1pVhfJ-sMj9fuRXgMjH0gxw)   提取码: 76fk
-#### 49.斗罗大陆1（更至144）链接: [https://pan.baidu.com/s/1bzRyICnMkKLKeBEHBt2cbQ](https://pan.baidu.com/s/1bzRyICnMkKLKeBEHBt2cbQ)   提取码: qgji
-#### 50.玲珑狼心（更至18）链接：[https://pan.baidu.com/s/1XR0vJoaDUPwKgwANKxN6Qw](https://pan.baidu.com/s/1XR0vJoaDUPwKgwANKxN6Qw)  提取码：ns3w
-#### 51.亲爱的热爱的在线链接: [http://www.zeilou3.cn/play/tv/QbVqbH7lRm8pOX](http://www.zeilou3.cn/play/tv/QbVqbH7lRm8pOX)
-#### 52.七月与安生电影在线链接：[http://www.zeilou3.cn/play/m/hKTnZxH3R0PATh](http://www.zeilou3.cn/play/m/hKTnZxH3R0PATh)
-#### 53.七月与安生电视剧在线链接: [http://www.zeilou3.cn/play/tv/Rbhxb07lRmDpN3](http://www.zeilou3.cn/play/tv/Rbhxb07lRmDpN3)
-#### 54.在劫难逃2020在线链接: [http://www.zeilou3.cn/play/tv/RLRrcH7lSGPmOH](http://www.zeilou3.cn/play/tv/RLRrcH7lSGPmOH)
-#### 55.雷霆追击2021在线链接：[http://www.zeilou3.cn/play/m/hqTmZRH6QnP2UR](http://www.zeilou3.cn/play/m/hqTmZRH6QnP2UR)
-#### 56.正青春链接: [https://pan.baidu.com/s/1sP06jLVJpm--UKJZUxf3tA](https://pan.baidu.com/s/1sP06jLVJpm--UKJZUxf3tA)   提取码: yh8x
-#### 57.黑白禁区在线链接: [http://www.zeilou3.cn/play/tv/QrRpc07lSWTqOH](http://www.zeilou3.cn/play/tv/QrRpc07lSWTqOH)
-#### 58.刑警本色2021在线链接：[http://www.zeilou3.cn/play/n/92652](http://www.zeilou3.cn/play/n/92652)
-#### 59.半路枪手/腰间持枪在线链接：[http://www.zeilou3.cn/play/n/37962](http://www.zeilou3.cn/play/n/37962)
-#### 60.禁武令之九幽烛龙在线链接：[http://www.zeilou3.cn/play/n/91980](http://www.zeilou3.cn/play/n/91980)
-#### 61.如果声音不记得在线链接：[http://www.zeilou3.cn/play/m/gaXqaRH6QXr4Tx](http://www.zeilou3.cn/play/m/gaXqaRH6QXr4Tx)
-#### 62.风起霓裳（更至42）链接: [https://pan.baidu.com/s/1LeiQoFUdvsj_NavyDim4yg](https://pan.baidu.com/s/1LeiQoFUdvsj_NavyDim4yg)   提取码: q7ep
-#### 63.棒！少年在线链接：[http://www.zeilou3.cn/play/m/g6XnaRH6QXr3TB](http://www.zeilou3.cn/play/m/g6XnaRH6QXr3TB)
-#### 64.非婚不可链接: [https://pan.baidu.com/s/1Y99ABFloeJ4uJ4gkT-yyKA](https://pan.baidu.com/s/1Y99ABFloeJ4uJ4gkT-yyKA)   提取码: 33st
-#### 65.唐人街探案3链接：[https://pan.baidu.com/s/1NPYpuAK958y1QEMIBmtYbQ](https://pan.baidu.com/s/1NPYpuAK958y1QEMIBmtYbQ)  提取码：8008
-#### 66.失忆24小时（更至08）链接: [https://pan.baidu.com/s/15r7kJuj0RMJPRijxPLEVAw](https://pan.baidu.com/s/15r7kJuj0RMJPRijxPLEVAw)   提取码: 3sdv
+  最近采集时间:2021-02-25 21:00:01
+
+#### 1.失忆24小时（更至09）链接: [https://pan.baidu.com/s/1wGMlIfrz-7Q0PyOrw9JDaA](https://pan.baidu.com/s/1wGMlIfrz-7Q0PyOrw9JDaA)   提取码: fb7m
+#### 2.台风少年行链接: [https://pan.baidu.com/s/1eUrT8Pnec_-Iyk6VF1N_IQ](https://pan.baidu.com/s/1eUrT8Pnec_-Iyk6VF1N_IQ)   提取码: 727y
+#### 3.婆婆和妈妈2（更至02.25）链接: [https://pan.baidu.com/s/1chJEcTpipxsTx7z-GdBi2g](https://pan.baidu.com/s/1chJEcTpipxsTx7z-GdBi2g)   提取码: 9sw4
+#### 4.我的时代，你的时代（更至26）链接: [https://pan.baidu.com/s/1GxpXBgObghCLFh5iYuuLEw](https://pan.baidu.com/s/1GxpXBgObghCLFh5iYuuLEw)   提取码: 3tdj
+#### 5.青春有你3（更至02.25）链接: [https://pan.baidu.com/s/1oTXOy38VtICwIAezdd80eA](https://pan.baidu.com/s/1oTXOy38VtICwIAezdd80eA)   提取码: urkf
+#### 6.乡村爱情13（更至16）链接: [https://pan.baidu.com/s/1dAVBt2Tq2A3kTCMAneUM-g](https://pan.baidu.com/s/1dAVBt2Tq2A3kTCMAneUM-g)   提取码: iw8v
+#### 7.玲珑（更至40）链接：[https://pan.baidu.com/s/14n2fn3yL5WRnXxcl6qAjNQ](https://pan.baidu.com/s/14n2fn3yL5WRnXxcl6qAjNQ)  提取码：8008
+#### 8.山河令（更至07）链接: [https://pan.baidu.com/s/1WJwlF0Lv5Z2k_ToJ-QH7rw](https://pan.baidu.com/s/1WJwlF0Lv5Z2k_ToJ-QH7rw)   提取码: fc2u
+#### 9.Re:从零开始的异世界生活2（更至21）链接：[https://pan.baidu.com/s/1-eLF7hlurC-QiBL1Du4lQA](https://pan.baidu.com/s/1-eLF7hlurC-QiBL1Du4lQA)  提取码：8008
+#### 10.僵尸大时代链接: [https://pan.baidu.com/s/1zdpFOhSNezX4Q6m2uVwwHg](https://pan.baidu.com/s/1zdpFOhSNezX4Q6m2uVwwHg)   提取码: jpe4
+#### 11.通天书院链接：[https://pan.baidu.com/s/1RhUbcjeVIJhR-MjMMYIe7Q](https://pan.baidu.com/s/1RhUbcjeVIJhR-MjMMYIe7Q)  提取码：pe0q
+#### 12.奇葩说2021（更至02.25）链接：[https://pan.baidu.com/s/1pYywM5HbeO7faLgd_TBQ6w](https://pan.baidu.com/s/1pYywM5HbeO7faLgd_TBQ6w)  提取码：8008
+#### 13.我是大神仙（更至17）链接: [https://pan.baidu.com/s/1HBca-yKCom-AhmTMygPvtQ](https://pan.baidu.com/s/1HBca-yKCom-AhmTMygPvtQ)   提取码: 6cbs
+#### 14.秦时明月之沧海横流（更至24）链接: [https://pan.baidu.com/s/158X3c31Q6ZxBHmYCTLZLTQ](https://pan.baidu.com/s/158X3c31Q6ZxBHmYCTLZLTQ)   提取码: ey5n
+#### 15.雪鹰领主（更至40）链接: [https://pan.baidu.com/s/14W36tqogaapQ3qqEs7j_0w](https://pan.baidu.com/s/14W36tqogaapQ3qqEs7j_0w)   提取码: yhxj
+#### 16.明星大侦探2020+名侦探俱乐部（更至02.25）链接: [https://pan.baidu.com/s/1Ml-kfA2Wwz4Dg-T8k8qetw](https://pan.baidu.com/s/1Ml-kfA2Wwz4Dg-T8k8qetw)   提取码: 5s65
+#### 17.人间指南（更至02.25）链接: [https://pan.baidu.com/s/1kO0zBD9nxyc1GszJ6dRcZA](https://pan.baidu.com/s/1kO0zBD9nxyc1GszJ6dRcZA)   提取码: ic49
+#### 18.屌丝男士1-4链接: [https://pan.baidu.com/s/1nzPTlwde2HWL1gdyt_3-Vg](https://pan.baidu.com/s/1nzPTlwde2HWL1gdyt_3-Vg)   提取码: vm6w
+#### 19.恋爱吧食梦君在线2在线链接：[http://zeilou3.cn/play/tv/QbZwbX7lSGXlN3](http://zeilou3.cn/play/tv/QbZwbX7lSGXlN3)
+#### 20.恋爱吧食梦君1在线链接: [http://zeilou3.cn/play/tv/PrZqbH7lSGXlOH](http://zeilou3.cn/play/tv/PrZqbH7lSGXlOH)
+#### 21.脱口秀大会2020在线链接:[http://zeilou3.cn/play/va/ZMAoaXNz7JY5DD](http://zeilou3.cn/play/va/ZMAoaXNz7JY5DD)
+#### 22.怪物猎人链接：[https://pan.baidu.com/s/1_UK6FIp7rn-l1CN3sztPMw](https://pan.baidu.com/s/1_UK6FIp7rn-l1CN3sztPMw)  提取码：8008
+#### 23.斗破苍穹动漫第3季在线链接:[http://zeilou3.cn/play/ct/QEDqap7lMYC2Dj](http://zeilou3.cn/play/ct/QEDqap7lMYC2Dj)
+#### 24.伦敦陷落在线链接:[http://zeilou3.cn/play/m/f6bpaRH2RHX2Tx](http://zeilou3.cn/play/m/f6bpaRH2RHX2Tx)
+#### 25.大叔之爱电视剧2018在线链接:[http://zeilou3.cn/play/n/72961](http://zeilou3.cn/play/n/72961)
+#### 26.宠女青春白皮书在线链接: [http://zeilou3.cn/play/n/86162](http://zeilou3.cn/play/n/86162)
+#### 27.修罗新娘链接: [https://pan.baidu.com/s/1OsMwMYiJ3Cmiv-xqSNllSQ](https://pan.baidu.com/s/1OsMwMYiJ3Cmiv-xqSNllSQ)   提取码: hejx
+#### 28.择日而亡在线链接: [http://zeilou3.cn/play/m/fqbkYhH6QXj8TB](http://zeilou3.cn/play/m/fqbkYhH6QXj8TB)
+#### 29.发财日记链接：[https://pan.baidu.com/s/1GxDZ4KJ7u3u_IYt6HVWQZQ](https://pan.baidu.com/s/1GxDZ4KJ7u3u_IYt6HVWQZQ)  提取码：8008
+#### 30.变焦在线链接：[http://zeilou3.cn/play/n/76768](http://zeilou3.cn/play/n/76768)
+#### 31.当天真遇见爱情（更至28）链接: [https://pan.baidu.com/s/1qgmzSq3rQ0SACYsv_K5jdw](https://pan.baidu.com/s/1qgmzSq3rQ0SACYsv_K5jdw)   提取码: wgtr
+#### 32.这个世界不看脸链接: [https://pan.baidu.com/s/1Rw64xYv0bct13p96KXPHdw](https://pan.baidu.com/s/1Rw64xYv0bct13p96KXPHdw)   提取码: k95k
+#### 33.约定2021（更至36）链接: [https://pan.baidu.com/s/1YogpzfAW3nA2QVP7hXsrzg](https://pan.baidu.com/s/1YogpzfAW3nA2QVP7hXsrzg)   提取码: fii1
+#### 34.了不起的女孩链接: [https://pan.baidu.com/s/1pvckcoaPpxDecrcUbD2m5Q](https://pan.baidu.com/s/1pvckcoaPpxDecrcUbD2m5Q)   提取码: m8mx
+#### 35.闪光少女2019电视剧在线链接：[http://zeilou3.cn/play/tv/QbNoaX7lSz4qMH](http://zeilou3.cn/play/tv/QbNoaX7lSz4qMH)
+#### 36.闪光少女2017电影在线链接：[http://zeilou3.cn/play/m/hqLkYxH4QnT1SB](http://zeilou3.cn/play/m/hqLkYxH4QnT1SB)
+#### 37.良医美剧第4季（更至10）链接: [https://pan.baidu.com/s/1D1pXEVQqkdoTuANsvK6OcA](https://pan.baidu.com/s/1D1pXEVQqkdoTuANsvK6OcA)   提取码: ujin
+#### 38.前辈，请不要涂那支口红（更至10）链接: [https://pan.baidu.com/s/1YwJXRJXZaKH-hyEUKP2Vow](https://pan.baidu.com/s/1YwJXRJXZaKH-hyEUKP2Vow)   提取码: q498
+#### 39.刺客伍六七之玄武国篇（更至05）链接: [https://pan.baidu.com/s/1aRxqDOb38BvTg24P1hgEwA](https://pan.baidu.com/s/1aRxqDOb38BvTg24P1hgEwA)   提取码: cxkx
+#### 40.我是余欢水在线链接: [http://zeilou3.cn/play/tv/RbRuaH7lSzTpM3](http://zeilou3.cn/play/tv/RbRuaH7lSzTpM3)
+#### 41.狼殿下在线链接: [http://zeilou3.cn/play/tv/PLNtaH7lSWLnMn](http://zeilou3.cn/play/tv/PLNtaH7lSWLnMn)
+#### 42.青簪锁三千在线链接: [http://zeilou3.cn/play/m/gafkZhH6QXH7Tx](http://zeilou3.cn/play/m/gafkZhH6QXH7Tx)
+#### 43.沙蟒围城在线链接: [http://www.zeilou3.cn/play/m/gKboZxH6QXb0Sh](http://www.zeilou3.cn/play/m/gKboZxH6QXb0Sh)
+#### 44.我曾记得那男孩（更至10）链接: [https://pan.baidu.com/s/1eefOuD1BMwN8_Le1ZUA6xA](https://pan.baidu.com/s/1eefOuD1BMwN8_Le1ZUA6xA)   提取码: fw7w
+#### 45.奶爸当家链接：[https://pan.baidu.com/s/130hJEnBqfJdds-YR5ITC4g](https://pan.baidu.com/s/130hJEnBqfJdds-YR5ITC4g)  提取码：8008
+#### 46.谎言大师链接: [https://pan.baidu.com/s/1YtWlyefQPID1gxyfh8dNKA](https://pan.baidu.com/s/1YtWlyefQPID1gxyfh8dNKA)   提取码: qhrv
+#### 47.你好，李焕英链接：[https://pan.baidu.com/s/1c-jbgxsw-fiGWTM1M4UtMA](https://pan.baidu.com/s/1c-jbgxsw-fiGWTM1M4UtMA)  提取码：8008
+#### 48.上阳赋 （更至68）链接：[https://pan.baidu.com/s/1LHrQ18BPlQjSx6Lt_PTqbA](https://pan.baidu.com/s/1LHrQ18BPlQjSx6Lt_PTqbA)  提取码：8008
+#### 49.风平浪静2020链接: [https://pan.baidu.com/s/1pVhfJ-sMj9fuRXgMjH0gxw](https://pan.baidu.com/s/1pVhfJ-sMj9fuRXgMjH0gxw)   提取码: 76fk
+#### 50.斗罗大陆1（更至144）链接: [https://pan.baidu.com/s/1bzRyICnMkKLKeBEHBt2cbQ](https://pan.baidu.com/s/1bzRyICnMkKLKeBEHBt2cbQ)   提取码: qgji
+#### 51.玲珑狼心（更至18）链接：[https://pan.baidu.com/s/1XR0vJoaDUPwKgwANKxN6Qw](https://pan.baidu.com/s/1XR0vJoaDUPwKgwANKxN6Qw)  提取码：ns3w
+#### 52.亲爱的热爱的在线链接: [http://www.zeilou3.cn/play/tv/QbVqbH7lRm8pOX](http://www.zeilou3.cn/play/tv/QbVqbH7lRm8pOX)
+#### 53.七月与安生电影在线链接：[http://www.zeilou3.cn/play/m/hKTnZxH3R0PATh](http://www.zeilou3.cn/play/m/hKTnZxH3R0PATh)
+#### 54.七月与安生电视剧在线链接: [http://www.zeilou3.cn/play/tv/Rbhxb07lRmDpN3](http://www.zeilou3.cn/play/tv/Rbhxb07lRmDpN3)
+#### 55.在劫难逃2020在线链接: [http://www.zeilou3.cn/play/tv/RLRrcH7lSGPmOH](http://www.zeilou3.cn/play/tv/RLRrcH7lSGPmOH)
+#### 56.雷霆追击2021在线链接：[http://www.zeilou3.cn/play/m/hqTmZRH6QnP2UR](http://www.zeilou3.cn/play/m/hqTmZRH6QnP2UR)
+#### 57.正青春链接: [https://pan.baidu.com/s/1sP06jLVJpm--UKJZUxf3tA](https://pan.baidu.com/s/1sP06jLVJpm--UKJZUxf3tA)   提取码: yh8x
+#### 58.黑白禁区在线链接: [http://www.zeilou3.cn/play/tv/QrRpc07lSWTqOH](http://www.zeilou3.cn/play/tv/QrRpc07lSWTqOH)
+#### 59.刑警本色2021在线链接：[http://www.zeilou3.cn/play/n/92652](http://www.zeilou3.cn/play/n/92652)
+#### 60.半路枪手/腰间持枪在线链接：[http://www.zeilou3.cn/play/n/37962](http://www.zeilou3.cn/play/n/37962)
+#### 61.禁武令之九幽烛龙在线链接：[http://www.zeilou3.cn/play/n/91980](http://www.zeilou3.cn/play/n/91980)
+#### 62.如果声音不记得在线链接：[http://www.zeilou3.cn/play/m/gaXqaRH6QXr4Tx](http://www.zeilou3.cn/play/m/gaXqaRH6QXr4Tx)
+#### 63.风起霓裳（更至42）链接: [https://pan.baidu.com/s/1LeiQoFUdvsj_NavyDim4yg](https://pan.baidu.com/s/1LeiQoFUdvsj_NavyDim4yg)   提取码: q7ep
+#### 64.棒！少年在线链接：[http://www.zeilou3.cn/play/m/g6XnaRH6QXr3TB](http://www.zeilou3.cn/play/m/g6XnaRH6QXr3TB)
+#### 65.非婚不可链接: [https://pan.baidu.com/s/1Y99ABFloeJ4uJ4gkT-yyKA](https://pan.baidu.com/s/1Y99ABFloeJ4uJ4gkT-yyKA)   提取码: 33st
+#### 66.唐人街探案3链接：[https://pan.baidu.com/s/1NPYpuAK958y1QEMIBmtYbQ](https://pan.baidu.com/s/1NPYpuAK958y1QEMIBmtYbQ)  提取码：8008
 #### 67.甜蜜（更至20）链接: [https://pan.baidu.com/s/107ErMDfhpHaYUMfVPJUQLg](https://pan.baidu.com/s/107ErMDfhpHaYUMfVPJUQLg)   提取码: 4i8h
 #### 68.暴风眼（更至03）链接: [https://pan.baidu.com/s/1xIFBTOJTaDEcxTu8FThoEg](https://pan.baidu.com/s/1xIFBTOJTaDEcxTu8FThoEg)   提取码: rv9m
 #### 69.赘婿(更至18)链接：[https://pan.baidu.com/s/19fXeEHD3I_vRM75OnOw5gQ](https://pan.baidu.com/s/19fXeEHD3I_vRM75OnOw5gQ)  提取码：8008
