@@ -1,11 +1,13 @@
 
 <h3 align="center" style="letter-spacing:8px;"> 🌈电影收集爱好者🌈</h3><p align="center"><a href="https://k2f1.cn/" target="_blank" rel="noopener noreferrer"><img width="80" src="https://zeilou.github.io/jz.jpg" alt="logo"></a></p>
-<h3 align="center" style="color:#f00;font-weight:bold;letter-spacing:8px;"> 资源搜索</h3><p align="center"><a style="color:blue;font-size:20px" href="http://ijji.top/U9Nk" target="_blank" rel="noopener noreferrer">http://ijji.top/U9Nk</a></p>
+<h3 align="center" style="color:#f00;font-weight:bold;letter-spacing:8px;"> 资源搜索</h3><p align="center"><a style="color:blue;font-size:20px;font-weight:bold" href="http://ijji.top/U9Nk" target="_blank" rel="noopener noreferrer">http://ijji.top/U9Nk</a></p>
+
+</br>
 
 
 
 ### 实时采集记录
-  最近采集时间:2021-02-25 20:34:47
+  最近采集时间:2021-02-25 20:44:13
 #### 1.台风少年行链接: [https://pan.baidu.com/s/1eUrT8Pnec_-Iyk6VF1N_IQ](https://pan.baidu.com/s/1eUrT8Pnec_-Iyk6VF1N_IQ)   提取码: 727y
 #### 2.婆婆和妈妈2（更至02.25）链接: [https://pan.baidu.com/s/1chJEcTpipxsTx7z-GdBi2g](https://pan.baidu.com/s/1chJEcTpipxsTx7z-GdBi2g)   提取码: 9sw4
 #### 3.我的时代，你的时代（更至26）链接: [https://pan.baidu.com/s/1GxpXBgObghCLFh5iYuuLEw](https://pan.baidu.com/s/1GxpXBgObghCLFh5iYuuLEw)   提取码: 3tdj
@@ -253,4 +255,3 @@
 #### 245.弗罗拉与松鼠侠链接：[https://pan.baidu.com/s/1_Jft2tKbXTm4BKotDXOh3w](https://pan.baidu.com/s/1_Jft2tKbXTm4BKotDXOh3w)  提取码：6nuo
 #### 246.天国与地狱（更至06）链接: [https://pan.baidu.com/s/1Rqn3XKiC2KI6vbWJoRkoHg](https://pan.baidu.com/s/1Rqn3XKiC2KI6vbWJoRkoHg)   提取码: m2is
 #### 247.亡者之迷链接: [https://pan.baidu.com/s/1f0q0DKiE0W8e67z1-tkuug](https://pan.baidu.com/s/1f0q0DKiE0W8e67z1-tkuug)   提取码: 48za
-#### 248.死色/铁青链接: [https://pan.baidu.com/s/1PaNJFO9oeU09IKUAfE1GbQ](https://pan.baidu.com/s/1PaNJFO9oeU09IKUAfE1GbQ)   提取码: 3iwb
