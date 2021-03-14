@@ -7,7 +7,7 @@
 
 
 ### 实时采集记录
-  最近采集时间:2021-03-14 15:00:01
+  最近采集时间:2021-03-14 15:10:01
 #### 1.如懿传4K[国语软英字] （迅雷云盘）链接：[https://pan.xunlei.com/s/VMVjSRmL89fVaE4wAxrLjyIuA1](https://pan.xunlei.com/s/VMVjSRmL89fVaE4wAxrLjyIuA1)  提取码：e3cj
 #### 2.斗罗大陆电视剧4K（迅雷云盘）链接：[https://pan.xunlei.com/s/VMVjQUoUWjSpnAIOdXN4ev15A1](https://pan.xunlei.com/s/VMVjQUoUWjSpnAIOdXN4ev15A1)  提取码：ixzt
 #### 3.斗罗大陆（2021电视剧）链接：[https://pan.baidu.com/s/1b2L3hSNzidpG8BmDUlRaAA](https://pan.baidu.com/s/1b2L3hSNzidpG8BmDUlRaAA)  提取码：aj73
