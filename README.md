@@ -7,42 +7,43 @@
 
 
 ### 实时采集记录
-  最近采集时间:2021-04-01 19:10:02
+  最近采集时间:2021-04-01 19:20:01
+#### 1.赘婿链接：[https://pan.baidu.com/s/1vPv1azhmpout3Tr-udDB1w](https://pan.baidu.com/s/1vPv1azhmpout3Tr-udDB1w)  提取码：3150
 
 
-#### 1.24小时美剧1-9链接: [https://pan.baidu.com/s/1e67Irr4m6rmNt_Qhn7j0Ww](https://pan.baidu.com/s/1e67Irr4m6rmNt_Qhn7j0Ww)   提取码: 8biv
-#### 2.青春有你2019（迅雷云盘）链接：[https://pan.xunlei.com/s/VMXC27FUShMRz3E8fp2apYpKA1](https://pan.xunlei.com/s/VMXC27FUShMRz3E8fp2apYpKA1)  提取码：anww
-#### 3.山河令花絮(更至04)链接: [https://pan.baidu.com/s/1JpmiabFP-mtxNCKOAtigFQ](https://pan.baidu.com/s/1JpmiabFP-mtxNCKOAtigFQ)   提取码: be3t
-#### 4.婆婆和妈妈2（更至04.01）链接: [https://pan.baidu.com/s/1uC2EnbiZ7hP7jNSnfaN8kQ](https://pan.baidu.com/s/1uC2EnbiZ7hP7jNSnfaN8kQ)   提取码: u4ku
-#### 5.人间指南（更至04.01）链接: [https://pan.baidu.com/s/1rlGRR6cMDRJKRWLqwEml1Q](https://pan.baidu.com/s/1rlGRR6cMDRJKRWLqwEml1Q)   提取码: zyh4
-#### 6.唐人街探案3链接：[https://pan.baidu.com/s/1EwGZXYV0q6GlDlAMmTajGQ](https://pan.baidu.com/s/1EwGZXYV0q6GlDlAMmTajGQ)  提取码：3150
-#### 7.暴风眼链接: [https://pan.baidu.com/s/1huyT8MbZdrGsDYQwUN0pCw](https://pan.baidu.com/s/1huyT8MbZdrGsDYQwUN0pCw)   提取码: ght6
-#### 8.荣耀乒乓（更至34）链接: [https://pan.baidu.com/s/1ZINgYHWXx0qn1_JgCkb7IQ](https://pan.baidu.com/s/1ZINgYHWXx0qn1_JgCkb7IQ)   提取码: bitc
-#### 9.裙下有野兽（迅雷云盘）链接：[https://pan.xunlei.com/s/VMXBRnH7dQZ9itiWyHRIf2-NA1](https://pan.xunlei.com/s/VMXBRnH7dQZ9itiWyHRIf2-NA1)  提取码：f8ss
-#### 10.我就是这般女子链接：[https://pan.baidu.com/s/1wVEEdnZdw70FURwuIm6RQw](https://pan.baidu.com/s/1wVEEdnZdw70FURwuIm6RQw)  提取码：3150
-#### 11.噬血狂袭1-3（迅雷云盘）链接：[https://pan.xunlei.com/s/VMXBNhtF2h72fE67_MFUDEuPA1](https://pan.xunlei.com/s/VMXBNhtF2h72fE67_MFUDEuPA1)  提取码：3g3r
-#### 12.码头链接: [https://pan.baidu.com/s/1r_6I7LVsBO3CvAF6JU2hPA](https://pan.baidu.com/s/1r_6I7LVsBO3CvAF6JU2hPA)   提取码: u9m5
-#### 13.21座桥链接: [https://pan.baidu.com/s/13vDWaR9e2L-DKI9r7VO73A](https://pan.baidu.com/s/13vDWaR9e2L-DKI9r7VO73A)   提取码: 1q95
-#### 14.阿拉丁2019链接：[https://pan.baidu.com/s/1NvCHg3_wnpmhUFG6MX6PLw](https://pan.baidu.com/s/1NvCHg3_wnpmhUFG6MX6PLw)  提取码：4du3
-#### 15.慢游全世界链接: [https://pan.baidu.com/s/1iVUFn3Pdds_WBSpj5p1cSQ](https://pan.baidu.com/s/1iVUFn3Pdds_WBSpj5p1cSQ)   提取码: ua1e
-#### 16.炮灰攻略链接: [https://pan.baidu.com/s/1MdfpXxz1BFBOaJZYBmbGhg](https://pan.baidu.com/s/1MdfpXxz1BFBOaJZYBmbGhg)   提取码: c8sw
-#### 17.美国众神第3季（更至10）链接: [https://pan.baidu.com/s/1EzYKS4hPNZqg2HCyKnpn7A](https://pan.baidu.com/s/1EzYKS4hPNZqg2HCyKnpn7A)   提取码: krr5
-#### 18.全职高手动漫2链接: [https://pan.baidu.com/s/1Vx_jCY9uyzoMt38BIXyJJQ](https://pan.baidu.com/s/1Vx_jCY9uyzoMt38BIXyJJQ)   提取码: 8skm
-#### 19.影之诗链接: [https://pan.baidu.com/s/1z-bPe3CZrPM4MCGSv8kLiw](https://pan.baidu.com/s/1z-bPe3CZrPM4MCGSv8kLiw)   提取码: 2x55
-#### 20.悠哉日常大王3链接: [https://pan.baidu.com/s/1FHi6X8XCfZObklhfuyzqKQ](https://pan.baidu.com/s/1FHi6X8XCfZObklhfuyzqKQ)   提取码: 15bc
-#### 21.奇蛋物语（更至12）链接: [https://pan.baidu.com/s/16-vujRvQFksQKRG9MIc7Lw](https://pan.baidu.com/s/16-vujRvQFksQKRG9MIc7Lw)   提取码: 236y
-#### 22.堀与宫村日剧链接: [https://pan.baidu.com/s/11zOdvIhEOcDdud03qQMrmA](https://pan.baidu.com/s/11zOdvIhEOcDdud03qQMrmA)   提取码: wtxs
-#### 23.堀与宫村动漫（更至12）链接: [https://pan.baidu.com/s/1e8SU7IgoAuhXjt2WuiC6rA](https://pan.baidu.com/s/1e8SU7IgoAuhXjt2WuiC6rA)   提取码: wqg5
-#### 24.朝鲜驱魔师链接: [https://pan.baidu.com/s/1tfs8Y9kOI2dEAhuz_Bde_w](https://pan.baidu.com/s/1tfs8Y9kOI2dEAhuz_Bde_w)   提取码: e84w
-#### 25.令人心动的offer第2季链接: [https://pan.baidu.com/s/1cP-NooOSxkcV5MDIhcO_iQ](https://pan.baidu.com/s/1cP-NooOSxkcV5MDIhcO_iQ)   提取码: 3qc2
-#### 26.巡回检察组链接: [https://pan.baidu.com/s/1SyyMJzriUCCouLzC2DoJBQ](https://pan.baidu.com/s/1SyyMJzriUCCouLzC2DoJBQ)   提取码: u3ua
-#### 27.斗罗大陆1（更至149）链接: [https://pan.baidu.com/s/1SRDu93PkZeOHwp08wTY9fw](https://pan.baidu.com/s/1SRDu93PkZeOHwp08wTY9fw)   提取码: eds4
-#### 28.恋恋小酒窝链接: [https://pan.baidu.com/s/1nt39sq9UYYb0zWJOEpMgng](https://pan.baidu.com/s/1nt39sq9UYYb0zWJOEpMgng)   提取码: wten
-#### 29.大宋宫词2021（更至28）链接: [https://pan.baidu.com/s/1W5w_B6YKgmUbPfPrOYiyag](https://pan.baidu.com/s/1W5w_B6YKgmUbPfPrOYiyag)   提取码: wrhn
-#### 30.玉昭令（更至10）链接: [https://pan.baidu.com/s/1RzEBTHtQLj6WHk3FoZavGA](https://pan.baidu.com/s/1RzEBTHtQLj6WHk3FoZavGA)   提取码: xnys
-#### 31.司藤（更至28）链接: [https://pan.baidu.com/s/1-AMVOyVm1hsB10aV-8F8xQ](https://pan.baidu.com/s/1-AMVOyVm1hsB10aV-8F8xQ)   提取码: 2z42
-#### 32.山河令链接：[https://pan.baidu.com/s/1XJMJ41bdSct4l2X8LQzooQ](https://pan.baidu.com/s/1XJMJ41bdSct4l2X8LQzooQ)  提取码：3150
-#### 33.赘婿链接：[https://pan.baidu.com/s/1JdAJhp63p4CPcAbAx5MLPw](https://pan.baidu.com/s/1JdAJhp63p4CPcAbAx5MLPw)  提取码：3150
+
+#### 2.24小时美剧1-9链接: [https://pan.baidu.com/s/1e67Irr4m6rmNt_Qhn7j0Ww](https://pan.baidu.com/s/1e67Irr4m6rmNt_Qhn7j0Ww)   提取码: 8biv
+#### 3.青春有你2019（迅雷云盘）链接：[https://pan.xunlei.com/s/VMXC27FUShMRz3E8fp2apYpKA1](https://pan.xunlei.com/s/VMXC27FUShMRz3E8fp2apYpKA1)  提取码：anww
+#### 4.山河令花絮(更至04)链接: [https://pan.baidu.com/s/1JpmiabFP-mtxNCKOAtigFQ](https://pan.baidu.com/s/1JpmiabFP-mtxNCKOAtigFQ)   提取码: be3t
+#### 5.婆婆和妈妈2（更至04.01）链接: [https://pan.baidu.com/s/1uC2EnbiZ7hP7jNSnfaN8kQ](https://pan.baidu.com/s/1uC2EnbiZ7hP7jNSnfaN8kQ)   提取码: u4ku
+#### 6.人间指南（更至04.01）链接: [https://pan.baidu.com/s/1rlGRR6cMDRJKRWLqwEml1Q](https://pan.baidu.com/s/1rlGRR6cMDRJKRWLqwEml1Q)   提取码: zyh4
+#### 7.唐人街探案3链接：[https://pan.baidu.com/s/1EwGZXYV0q6GlDlAMmTajGQ](https://pan.baidu.com/s/1EwGZXYV0q6GlDlAMmTajGQ)  提取码：3150
+#### 8.暴风眼链接: [https://pan.baidu.com/s/1huyT8MbZdrGsDYQwUN0pCw](https://pan.baidu.com/s/1huyT8MbZdrGsDYQwUN0pCw)   提取码: ght6
+#### 9.荣耀乒乓（更至34）链接: [https://pan.baidu.com/s/1ZINgYHWXx0qn1_JgCkb7IQ](https://pan.baidu.com/s/1ZINgYHWXx0qn1_JgCkb7IQ)   提取码: bitc
+#### 10.裙下有野兽（迅雷云盘）链接：[https://pan.xunlei.com/s/VMXBRnH7dQZ9itiWyHRIf2-NA1](https://pan.xunlei.com/s/VMXBRnH7dQZ9itiWyHRIf2-NA1)  提取码：f8ss
+#### 11.我就是这般女子链接：[https://pan.baidu.com/s/1wVEEdnZdw70FURwuIm6RQw](https://pan.baidu.com/s/1wVEEdnZdw70FURwuIm6RQw)  提取码：3150
+#### 12.噬血狂袭1-3（迅雷云盘）链接：[https://pan.xunlei.com/s/VMXBNhtF2h72fE67_MFUDEuPA1](https://pan.xunlei.com/s/VMXBNhtF2h72fE67_MFUDEuPA1)  提取码：3g3r
+#### 13.码头链接: [https://pan.baidu.com/s/1r_6I7LVsBO3CvAF6JU2hPA](https://pan.baidu.com/s/1r_6I7LVsBO3CvAF6JU2hPA)   提取码: u9m5
+#### 14.21座桥链接: [https://pan.baidu.com/s/13vDWaR9e2L-DKI9r7VO73A](https://pan.baidu.com/s/13vDWaR9e2L-DKI9r7VO73A)   提取码: 1q95
+#### 15.阿拉丁2019链接：[https://pan.baidu.com/s/1NvCHg3_wnpmhUFG6MX6PLw](https://pan.baidu.com/s/1NvCHg3_wnpmhUFG6MX6PLw)  提取码：4du3
+#### 16.慢游全世界链接: [https://pan.baidu.com/s/1iVUFn3Pdds_WBSpj5p1cSQ](https://pan.baidu.com/s/1iVUFn3Pdds_WBSpj5p1cSQ)   提取码: ua1e
+#### 17.炮灰攻略链接: [https://pan.baidu.com/s/1MdfpXxz1BFBOaJZYBmbGhg](https://pan.baidu.com/s/1MdfpXxz1BFBOaJZYBmbGhg)   提取码: c8sw
+#### 18.美国众神第3季（更至10）链接: [https://pan.baidu.com/s/1EzYKS4hPNZqg2HCyKnpn7A](https://pan.baidu.com/s/1EzYKS4hPNZqg2HCyKnpn7A)   提取码: krr5
+#### 19.全职高手动漫2链接: [https://pan.baidu.com/s/1Vx_jCY9uyzoMt38BIXyJJQ](https://pan.baidu.com/s/1Vx_jCY9uyzoMt38BIXyJJQ)   提取码: 8skm
+#### 20.影之诗链接: [https://pan.baidu.com/s/1z-bPe3CZrPM4MCGSv8kLiw](https://pan.baidu.com/s/1z-bPe3CZrPM4MCGSv8kLiw)   提取码: 2x55
+#### 21.悠哉日常大王3链接: [https://pan.baidu.com/s/1FHi6X8XCfZObklhfuyzqKQ](https://pan.baidu.com/s/1FHi6X8XCfZObklhfuyzqKQ)   提取码: 15bc
+#### 22.奇蛋物语（更至12）链接: [https://pan.baidu.com/s/16-vujRvQFksQKRG9MIc7Lw](https://pan.baidu.com/s/16-vujRvQFksQKRG9MIc7Lw)   提取码: 236y
+#### 23.堀与宫村日剧链接: [https://pan.baidu.com/s/11zOdvIhEOcDdud03qQMrmA](https://pan.baidu.com/s/11zOdvIhEOcDdud03qQMrmA)   提取码: wtxs
+#### 24.堀与宫村动漫（更至12）链接: [https://pan.baidu.com/s/1e8SU7IgoAuhXjt2WuiC6rA](https://pan.baidu.com/s/1e8SU7IgoAuhXjt2WuiC6rA)   提取码: wqg5
+#### 25.朝鲜驱魔师链接: [https://pan.baidu.com/s/1tfs8Y9kOI2dEAhuz_Bde_w](https://pan.baidu.com/s/1tfs8Y9kOI2dEAhuz_Bde_w)   提取码: e84w
+#### 26.令人心动的offer第2季链接: [https://pan.baidu.com/s/1cP-NooOSxkcV5MDIhcO_iQ](https://pan.baidu.com/s/1cP-NooOSxkcV5MDIhcO_iQ)   提取码: 3qc2
+#### 27.巡回检察组链接: [https://pan.baidu.com/s/1SyyMJzriUCCouLzC2DoJBQ](https://pan.baidu.com/s/1SyyMJzriUCCouLzC2DoJBQ)   提取码: u3ua
+#### 28.斗罗大陆1（更至149）链接: [https://pan.baidu.com/s/1SRDu93PkZeOHwp08wTY9fw](https://pan.baidu.com/s/1SRDu93PkZeOHwp08wTY9fw)   提取码: eds4
+#### 29.恋恋小酒窝链接: [https://pan.baidu.com/s/1nt39sq9UYYb0zWJOEpMgng](https://pan.baidu.com/s/1nt39sq9UYYb0zWJOEpMgng)   提取码: wten
+#### 30.大宋宫词2021（更至28）链接: [https://pan.baidu.com/s/1W5w_B6YKgmUbPfPrOYiyag](https://pan.baidu.com/s/1W5w_B6YKgmUbPfPrOYiyag)   提取码: wrhn
+#### 31.玉昭令（更至10）链接: [https://pan.baidu.com/s/1RzEBTHtQLj6WHk3FoZavGA](https://pan.baidu.com/s/1RzEBTHtQLj6WHk3FoZavGA)   提取码: xnys
+#### 32.司藤（更至28）链接: [https://pan.baidu.com/s/1-AMVOyVm1hsB10aV-8F8xQ](https://pan.baidu.com/s/1-AMVOyVm1hsB10aV-8F8xQ)   提取码: 2z42
+#### 33.山河令链接：[https://pan.baidu.com/s/1XJMJ41bdSct4l2X8LQzooQ](https://pan.baidu.com/s/1XJMJ41bdSct4l2X8LQzooQ)  提取码：3150
 #### 34.青春有你+青春有个局（更至03.28）链接: [https://pan.baidu.com/s/1sDLoOdQH7_8Gkp6WDHfugA](https://pan.baidu.com/s/1sDLoOdQH7_8Gkp6WDHfugA)   提取码: disr
 #### 35.棋魂2020链接: [https://pan.baidu.com/s/1AQ4NEmkU3u-8QZ5tU4Oq7A](https://pan.baidu.com/s/1AQ4NEmkU3u-8QZ5tU4Oq7A)   提取码: 79v2
 #### 36.一起深呼吸（更至18）链接: [https://pan.baidu.com/s/1gEjDom9amv5pLf1XToJD_Q](https://pan.baidu.com/s/1gEjDom9amv5pLf1XToJD_Q)   提取码: befj
