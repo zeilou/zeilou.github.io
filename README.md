@@ -7,8 +7,8 @@
 
 
 ### 实时采集记录
-  最近采集时间:2021-04-12 18:50:02
-#### 1.五十度黑/飞/灰 3部合集（1080P压缩）UC链接：[https://www.yun.cn/s/de8bc2b0c71d4b2fac5a8af97a044ba1解压密码：五十度](https://www.yun.cn/s/de8bc2b0c71d4b2fac5a8af97a044ba1解压密码：五十度)
+  最近采集时间:2021-04-12 19:00:02
+#### 1.五十度黑/飞/灰 1080P（UC）链接：[https://www.yun.cn/s/de8bc2b0c71d4b2fac5a8af97a044ba1解压密码：五十度](https://www.yun.cn/s/de8bc2b0c71d4b2fac5a8af97a044ba1解压密码：五十度)
 #### 2.斗破苍穹4（更至04）链接：[https://pan.baidu.com/s/1uasT_Q8jYJI01NQnBcE-pQ](https://pan.baidu.com/s/1uasT_Q8jYJI01NQnBcE-pQ)  提取码：vs5d
 #### 3.你是我的城池营垒链接: [https://pan.baidu.com/s/1ORLGP2eHmoZNwL2FVGvLyA](https://pan.baidu.com/s/1ORLGP2eHmoZNwL2FVGvLyA)   提取码: 79xf
 #### 4.小舍得（更至02）链接: [https://pan.baidu.com/s/1OsmPGn3Zz0Zh-IxRDOLDGA](https://pan.baidu.com/s/1OsmPGn3Zz0Zh-IxRDOLDGA)   提取码: kude
@@ -218,4 +218,3 @@
 #### 208.猎鹰与冬兵（更至04）链接: [https://pan.baidu.com/s/1-XN2CphWwL7vWW-QgatCAQ](https://pan.baidu.com/s/1-XN2CphWwL7vWW-QgatCAQ)   提取码: trsg
 #### 209.兴安岭猎人传说链接: [https://pan.baidu.com/s/1dDynZkTY9bWmOJPFmIlPnQ](https://pan.baidu.com/s/1dDynZkTY9bWmOJPFmIlPnQ)   提取码: vs3p
 #### 210.浪子神探2（更至07）链接: [https://pan.baidu.com/s/1eLkAGTf9p38MLp0v2K40lQ](https://pan.baidu.com/s/1eLkAGTf9p38MLp0v2K40lQ)   提取码: pp26
-#### 211.美国众神第3季链接: [https://pan.baidu.com/s/1QgEqo6lkJb9S641NavbtWA](https://pan.baidu.com/s/1QgEqo6lkJb9S641NavbtWA)   提取码: d2p9
