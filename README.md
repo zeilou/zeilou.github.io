@@ -7,36 +7,36 @@
 
 
 ### 实时采集记录
-  最近采集时间:2021-04-19 12:40:02
-#### 1.防暴警察链接: [https://pan.baidu.com/s/1dh8EdJTyMUBbvh_EwVu27A](https://pan.baidu.com/s/1dh8EdJTyMUBbvh_EwVu27A)   提取码: 67yj
-#### 2.老郭有新番（更至04.19）链接: [https://pan.baidu.com/s/1P21QJ9K438Pzy8RLBh1VgQ](https://pan.baidu.com/s/1P21QJ9K438Pzy8RLBh1VgQ)   提取码: e3d8
-#### 3.独步逍遥（更至91）链接: [https://pan.baidu.com/s/1DYz6-yc3sX2RqkDv9Uelbg](https://pan.baidu.com/s/1DYz6-yc3sX2RqkDv9Uelbg)   提取码: ryyp
-#### 4.忧国的莫里亚蒂（更至14）链接: [https://pan.baidu.com/s/1DzyTIkfrGqUMrYHET-ydtw](https://pan.baidu.com/s/1DzyTIkfrGqUMrYHET-ydtw)   提取码: n9ug
-#### 5.狗狗和我的十个约定链接: [http://pan.baidu.com/s/1c1XZtcO](http://pan.baidu.com/s/1c1XZtcO) 密码: hayw
-#### 6.恋爱是科学（更至05）链接: [https://pan.baidu.com/s/1SI9cQHPJdu6ajq2K_S-Cpg](https://pan.baidu.com/s/1SI9cQHPJdu6ajq2K_S-Cpg)   提取码: 4g7x
-#### 7.黑道律师文森佐（更至16）链接: [https://pan.baidu.com/s/1SBcgSOcuHyYlqctR2SIZhw](https://pan.baidu.com/s/1SBcgSOcuHyYlqctR2SIZhw)   提取码: vjdy
-#### 8.摇曳露营2（更至03）链接: [https://pan.baidu.com/s/1uMT-SJ2NxHgb9uy4JdeOPQ](https://pan.baidu.com/s/1uMT-SJ2NxHgb9uy4JdeOPQ)   提取码: m7wg
-#### 9.超人回来了2020链接: [https://pan.baidu.com/s/1ON6249T2tI5Lee0Jx-BeMg](https://pan.baidu.com/s/1ON6249T2tI5Lee0Jx-BeMg)   提取码: ff4k
-#### 10.超人回来了2019链接: [https://pan.baidu.com/s/1AqdxUZuygdqA-HyC4UxWDg](https://pan.baidu.com/s/1AqdxUZuygdqA-HyC4UxWDg)   提取码: zvt8
-#### 11.超人回来了2018链接: [https://pan.baidu.com/s/1FWseQk2GjNcJs_sdT40L9A](https://pan.baidu.com/s/1FWseQk2GjNcJs_sdT40L9A)   提取码: e6ib
-#### 12.天天向上（更至04.18）链接: [https://pan.baidu.com/s/1gu4_uu8uiWUR6cxK23p_7A](https://pan.baidu.com/s/1gu4_uu8uiWUR6cxK23p_7A)   提取码: 6sah
-#### 13.极限挑战2021（更至04.18）链接：[https://pan.baidu.com/s/1wQmb8hq0Pgj2np_sXKIIDw](https://pan.baidu.com/s/1wQmb8hq0Pgj2np_sXKIIDw)  提取码：4567
-#### 14.重案六组1-4（1080P 迅雷云盘）链接：[https://pan.xunlei.com/s/VMYb_S07_j7tO2t93OHrPurXA1](https://pan.xunlei.com/s/VMYb_S07_j7tO2t93OHrPurXA1)  提取码：2jv3
-#### 15.哈林教父2（更至01）链接: [https://pan.baidu.com/s/1TvbgnTpEQJsiifuTtJiWSw](https://pan.baidu.com/s/1TvbgnTpEQJsiifuTtJiWSw)   提取码: c6sp
-#### 16.哈林教父1链接: [https://pan.baidu.com/s/1k50YkZlIl_4dj56fm6IscA](https://pan.baidu.com/s/1k50YkZlIl_4dj56fm6IscA)   提取码: cy5r
-#### 17.离婚活动（更至01）链接: [https://pan.baidu.com/s/1ockT81LX_naN74FxedUtag](https://pan.baidu.com/s/1ockT81LX_naN74FxedUtag)   提取码: u5wv
-#### 18.小舍得（更至15）链接: [https://pan.baidu.com/s/1fHS3gSkaTNa440ESDhMMGg](https://pan.baidu.com/s/1fHS3gSkaTNa440ESDhMMGg)   提取码: ynue
-#### 19.History4近距离爱上你（更至12）链接: [https://pan.baidu.com/s/1wgcgCq4dqAIkJ31JfTA4lw](https://pan.baidu.com/s/1wgcgCq4dqAIkJ31JfTA4lw)   提取码: b6r7
-#### 20.号手就位（更至10）链接: [https://pan.baidu.com/s/1Ewbd_IBNHqgbtGfyKDBvHg](https://pan.baidu.com/s/1Ewbd_IBNHqgbtGfyKDBvHg)   提取码: pn2e
-#### 21.陪你一起长大（更至39）链接: [https://pan.baidu.com/s/13ARN6FFrh6svCAoOjUJajQ](https://pan.baidu.com/s/13ARN6FFrh6svCAoOjUJajQ)   提取码: 5fys
-#### 22.是咁的，法官阁下链接: [https://pan.baidu.com/s/18LdckiqObalb_J7jMQFLQg](https://pan.baidu.com/s/18LdckiqObalb_J7jMQFLQg)   提取码: smws
-#### 23.900重案追凶链接: [https://pan.baidu.com/s/1UfXyp3rtxl8MzM5m7hzQaQ](https://pan.baidu.com/s/1UfXyp3rtxl8MzM5m7hzQaQ)   提取码: dr7n
-#### 24.网络缉凶链接：[https://pan.baidu.com/s/1loozFizUMIip4E3dStB6bQ](https://pan.baidu.com/s/1loozFizUMIip4E3dStB6bQ)  提取码：alpq
-#### 25.炸猪排DJ扬太郎2020链接: [https://pan.baidu.com/s/1jP_bALIiTC99H9Ejn5SQLw](https://pan.baidu.com/s/1jP_bALIiTC99H9Ejn5SQLw)   提取码: un6p
-#### 26.俄罗斯突袭链接：[https://pan.baidu.com/s/1M5yMtTOCFoqH69oKciWRVA](https://pan.baidu.com/s/1M5yMtTOCFoqH69oKciWRVA)  提取码：b73p
-#### 27.澪之料理帖链接：[https://pan.baidu.com/s/1nsiQKcAkAnLBar6bJDlRcw](https://pan.baidu.com/s/1nsiQKcAkAnLBar6bJDlRcw)  提取码：k12i
-#### 28.山巅之城2（更至04）链接: [https://pan.baidu.com/s/1sKlL84Wio0GxztNB2GYtDw](https://pan.baidu.com/s/1sKlL84Wio0GxztNB2GYtDw)   提取码: mcvz
-#### 29.骊歌行（更至14）链接: [https://pan.baidu.com/s/1MKys1nldd-Sh84jqjUADBg](https://pan.baidu.com/s/1MKys1nldd-Sh84jqjUADBg)   提取码: nfmr
+  最近采集时间:2021-04-19 12:50:01
+#### 1.骊歌行（更至14）链接: [https://pan.baidu.com/s/1XWL9NLraep30ZW90QBTzDQ](https://pan.baidu.com/s/1XWL9NLraep30ZW90QBTzDQ)   提取码: vjci
+#### 2.防暴警察链接: [https://pan.baidu.com/s/1dh8EdJTyMUBbvh_EwVu27A](https://pan.baidu.com/s/1dh8EdJTyMUBbvh_EwVu27A)   提取码: 67yj
+#### 3.老郭有新番（更至04.19）链接: [https://pan.baidu.com/s/1P21QJ9K438Pzy8RLBh1VgQ](https://pan.baidu.com/s/1P21QJ9K438Pzy8RLBh1VgQ)   提取码: e3d8
+#### 4.独步逍遥（更至91）链接: [https://pan.baidu.com/s/1DYz6-yc3sX2RqkDv9Uelbg](https://pan.baidu.com/s/1DYz6-yc3sX2RqkDv9Uelbg)   提取码: ryyp
+#### 5.忧国的莫里亚蒂（更至14）链接: [https://pan.baidu.com/s/1DzyTIkfrGqUMrYHET-ydtw](https://pan.baidu.com/s/1DzyTIkfrGqUMrYHET-ydtw)   提取码: n9ug
+#### 6.狗狗和我的十个约定链接: [http://pan.baidu.com/s/1c1XZtcO](http://pan.baidu.com/s/1c1XZtcO) 密码: hayw
+#### 7.恋爱是科学（更至05）链接: [https://pan.baidu.com/s/1SI9cQHPJdu6ajq2K_S-Cpg](https://pan.baidu.com/s/1SI9cQHPJdu6ajq2K_S-Cpg)   提取码: 4g7x
+#### 8.黑道律师文森佐（更至16）链接: [https://pan.baidu.com/s/1SBcgSOcuHyYlqctR2SIZhw](https://pan.baidu.com/s/1SBcgSOcuHyYlqctR2SIZhw)   提取码: vjdy
+#### 9.摇曳露营2（更至03）链接: [https://pan.baidu.com/s/1uMT-SJ2NxHgb9uy4JdeOPQ](https://pan.baidu.com/s/1uMT-SJ2NxHgb9uy4JdeOPQ)   提取码: m7wg
+#### 10.超人回来了2020链接: [https://pan.baidu.com/s/1ON6249T2tI5Lee0Jx-BeMg](https://pan.baidu.com/s/1ON6249T2tI5Lee0Jx-BeMg)   提取码: ff4k
+#### 11.超人回来了2019链接: [https://pan.baidu.com/s/1AqdxUZuygdqA-HyC4UxWDg](https://pan.baidu.com/s/1AqdxUZuygdqA-HyC4UxWDg)   提取码: zvt8
+#### 12.超人回来了2018链接: [https://pan.baidu.com/s/1FWseQk2GjNcJs_sdT40L9A](https://pan.baidu.com/s/1FWseQk2GjNcJs_sdT40L9A)   提取码: e6ib
+#### 13.天天向上（更至04.18）链接: [https://pan.baidu.com/s/1gu4_uu8uiWUR6cxK23p_7A](https://pan.baidu.com/s/1gu4_uu8uiWUR6cxK23p_7A)   提取码: 6sah
+#### 14.极限挑战2021（更至04.18）链接：[https://pan.baidu.com/s/1wQmb8hq0Pgj2np_sXKIIDw](https://pan.baidu.com/s/1wQmb8hq0Pgj2np_sXKIIDw)  提取码：4567
+#### 15.重案六组1-4（1080P 迅雷云盘）链接：[https://pan.xunlei.com/s/VMYb_S07_j7tO2t93OHrPurXA1](https://pan.xunlei.com/s/VMYb_S07_j7tO2t93OHrPurXA1)  提取码：2jv3
+#### 16.哈林教父2（更至01）链接: [https://pan.baidu.com/s/1TvbgnTpEQJsiifuTtJiWSw](https://pan.baidu.com/s/1TvbgnTpEQJsiifuTtJiWSw)   提取码: c6sp
+#### 17.哈林教父1链接: [https://pan.baidu.com/s/1k50YkZlIl_4dj56fm6IscA](https://pan.baidu.com/s/1k50YkZlIl_4dj56fm6IscA)   提取码: cy5r
+#### 18.离婚活动（更至01）链接: [https://pan.baidu.com/s/1ockT81LX_naN74FxedUtag](https://pan.baidu.com/s/1ockT81LX_naN74FxedUtag)   提取码: u5wv
+#### 19.小舍得（更至15）链接: [https://pan.baidu.com/s/1fHS3gSkaTNa440ESDhMMGg](https://pan.baidu.com/s/1fHS3gSkaTNa440ESDhMMGg)   提取码: ynue
+#### 20.History4近距离爱上你（更至12）链接: [https://pan.baidu.com/s/1wgcgCq4dqAIkJ31JfTA4lw](https://pan.baidu.com/s/1wgcgCq4dqAIkJ31JfTA4lw)   提取码: b6r7
+#### 21.号手就位（更至10）链接: [https://pan.baidu.com/s/1Ewbd_IBNHqgbtGfyKDBvHg](https://pan.baidu.com/s/1Ewbd_IBNHqgbtGfyKDBvHg)   提取码: pn2e
+#### 22.陪你一起长大（更至39）链接: [https://pan.baidu.com/s/13ARN6FFrh6svCAoOjUJajQ](https://pan.baidu.com/s/13ARN6FFrh6svCAoOjUJajQ)   提取码: 5fys
+#### 23.是咁的，法官阁下链接: [https://pan.baidu.com/s/18LdckiqObalb_J7jMQFLQg](https://pan.baidu.com/s/18LdckiqObalb_J7jMQFLQg)   提取码: smws
+#### 24.900重案追凶链接: [https://pan.baidu.com/s/1UfXyp3rtxl8MzM5m7hzQaQ](https://pan.baidu.com/s/1UfXyp3rtxl8MzM5m7hzQaQ)   提取码: dr7n
+#### 25.网络缉凶链接：[https://pan.baidu.com/s/1loozFizUMIip4E3dStB6bQ](https://pan.baidu.com/s/1loozFizUMIip4E3dStB6bQ)  提取码：alpq
+#### 26.炸猪排DJ扬太郎2020链接: [https://pan.baidu.com/s/1jP_bALIiTC99H9Ejn5SQLw](https://pan.baidu.com/s/1jP_bALIiTC99H9Ejn5SQLw)   提取码: un6p
+#### 27.俄罗斯突袭链接：[https://pan.baidu.com/s/1M5yMtTOCFoqH69oKciWRVA](https://pan.baidu.com/s/1M5yMtTOCFoqH69oKciWRVA)  提取码：b73p
+#### 28.澪之料理帖链接：[https://pan.baidu.com/s/1nsiQKcAkAnLBar6bJDlRcw](https://pan.baidu.com/s/1nsiQKcAkAnLBar6bJDlRcw)  提取码：k12i
+#### 29.山巅之城2（更至04）链接: [https://pan.baidu.com/s/1sKlL84Wio0GxztNB2GYtDw](https://pan.baidu.com/s/1sKlL84Wio0GxztNB2GYtDw)   提取码: mcvz
 #### 30.恰好是少年（更至04.18）链接: [https://pan.baidu.com/s/1HKYsBVU4M11iqWclMrCPxg](https://pan.baidu.com/s/1HKYsBVU4M11iqWclMrCPxg)   提取码: 75ke
 #### 31.大宋宫词2021（更至58）链接: [https://pan.baidu.com/s/1alkWKOqoKtqIxlqs8Y9ytQ](https://pan.baidu.com/s/1alkWKOqoKtqIxlqs8Y9ytQ)   提取码: uadu
 #### 32.白玉思无瑕（更至12）链接: [https://pan.baidu.com/s/1q7JPCsaLx6I-0OZWNYzmHw](https://pan.baidu.com/s/1q7JPCsaLx6I-0OZWNYzmHw)   提取码: 73gb
